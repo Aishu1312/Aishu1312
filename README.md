@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Aishu1312
 - 👀 I’m interested in drawing,singing,Karate,Batminton.
 - 🌱 I’m currently learning Engineering CSBS 1st year btech. from Palloti college.
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me gmail: aaishwaryalala13@gmail.com
+-                     call:- 7499597013
 - ⚡ Fun fact: Love to make friends.
 
 <!---
